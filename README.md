@@ -8,4 +8,4 @@ Here are some ideas to get you started:
 - 👯 I am currently staying in Maryville
 - 🤔 I am looking foward to learn as much as I could to enhance my skills
 - 💬 'Never give up' - I believe in this very much. 
-- 📫 How to reach me: 773-530-8294
+- 📫 How to reach me: s550015@nwmissouri.edu
